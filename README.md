@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @anitasenjie
+# 👋 Hi, I’m Anita Ssenjala
 
 
 <!---
